@@ -6,7 +6,7 @@ Meu nome é Juliano Damasceno
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você entrar em contato comigo 📧
+### Você pode entrar em contato comigo 📧
 
   00001120542856sp@al.educacao.sp.gov.br
   
