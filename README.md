@@ -11,6 +11,6 @@ Meu nome é Juliano Damasceno
   00001120542856sp@al.educacao.sp.gov.br
   
   @julianodamasceno_
-
-![](https://tenor.com/pt-BR/view/playing-guitar-john-frusciante-red-hot-chili-peppers-black-summer-song-guitarist-gif-26861624)
+0
+![](https://tenor.com/pt-BR/view/boulos-guilhermeboulos-gabinetedoamor-gif-9311441968782402119)
   
