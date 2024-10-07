@@ -12,5 +12,5 @@ Meu nome é Juliano Damasceno
   
   @julianodamasceno_
 
-![](https://media1.tenor.com/m/JTgWZQvIO_wAAAAC/playing-guitar-john-frusciante.gif)
+![](https://tenor.com/pt-BR/view/playing-guitar-john-frusciante-red-hot-chili-peppers-black-summer-song-guitarist-gif-26861624)
   
