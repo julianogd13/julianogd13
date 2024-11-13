@@ -11,6 +11,6 @@ Meu nome é Juliano Damasceno
   00001120542856sp@al.educacao.sp.gov.br
   
   @julianodamasceno_
-0
+
 ![](https://tenor.com/pt-BR/view/boulos-guilhermeboulos-gabinetedoamor-gif-9311441968782402119)
   
